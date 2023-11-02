@@ -1,0 +1,2 @@
+# mindset
+take it easy
